@@ -3,11 +3,11 @@ Datas: 31 de agosto - 3 de setembro
 Obs: todos os links levam para os respectivos sites dos lugares/eventos. Links com @ levam para o instagram.
 ## 31 de agosto
 
-- ### [Casa Loma](https://casaloma.ca/) - [@casalomatoronto](https://www.instagram.com/casalomatoronto?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (15:00)
-### - [St. Lawrence Market](https://www.stlawrencemarket.com/) - [@stlawrencemarket](https://www.instagram.com/stlawrencemarket?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (17:00)
-### - [CN Tower](https://www.cntower.ca/) - [@cntower](https://www.instagram.com/cntower?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (19:00)
-### - [Ripley's Aquarium](https://www.ripleys.com/attractions/ripleys-aquarium-of-canada) - [@ripleysaquaca](https://www.instagram.com/ripleysaquaca?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (20:00)
-### - [Yonge-Dundas Square](https://www.ydsquare.ca/) - [@ydsquare](https://www.instagram.com/ydsquare?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
+### [Casa Loma](https://casaloma.ca/) - [@casalomatoronto](https://www.instagram.com/casalomatoronto?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (15:00)
+### [St. Lawrence Market](https://www.stlawrencemarket.com/) - [@stlawrencemarket](https://www.instagram.com/stlawrencemarket?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (17:00)
+### [CN Tower](https://www.cntower.ca/) - [@cntower](https://www.instagram.com/cntower?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (19:00)
+### [Ripley's Aquarium](https://www.ripleys.com/attractions/ripleys-aquarium-of-canada) - [@ripleysaquaca](https://www.instagram.com/ripleysaquaca?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) (20:00)
+### [Yonge-Dundas Square](https://www.ydsquare.ca/) - [@ydsquare](https://www.instagram.com/ydsquare?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 
 <hr>
 
