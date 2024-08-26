@@ -4,7 +4,9 @@ Obs: todos os links levam para os respectivos sites dos lugares/eventos. Links c
 ## 31 de agosto
 
 - **[Casa Loma](https://casaloma.ca/) - [@casalomatoronto](https://www.instagram.com/casalomatoronto?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)**
+- **[St. Lawrence Market](https://www.stlawrencemarket.com/)** - [@stlawrencemarket](https://www.instagram.com/stlawrencemarket?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 - **[CN Tower](https://www.cntower.ca/)** - [@cntower](https://www.instagram.com/cntower?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
+- **[Ripley's Aquarium](https://www.ripleys.com/attractions/ripleys-aquarium-of-canada)** - [@ripleysaquaca](https://www.instagram.com/ripleysaquaca?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 - **[Yonge-Dundas Square](https://www.ydsquare.ca/)** - [@ydsquare](https://www.instagram.com/ydsquare?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 ---
 ## 1 de setembro
