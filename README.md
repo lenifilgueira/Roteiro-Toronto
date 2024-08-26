@@ -9,6 +9,7 @@ Obs: todos os links levam para os respectivos sites dos lugares/eventos. Links c
 - **[Ripley's Aquarium](https://www.ripleys.com/attractions/ripleys-aquarium-of-canada)** - [@ripleysaquaca](https://www.instagram.com/ripleysaquaca?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 - **[Yonge-Dundas Square](https://www.ydsquare.ca/)** - [@ydsquare](https://www.instagram.com/ydsquare?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==)
 ---
+
 ## 1 de setembro
 
 ### Niagara Falls & Niagara-on-the-Lake
@@ -19,6 +20,7 @@ Obs: todos os links levam para os respectivos sites dos lugares/eventos. Links c
 - Pillitteri (@pillitteriwines)
 - Passeio centro
 ---
+
 ## 2 de setembro
 
 ### Formula 1 Exhibition - 10:00 a.m.
